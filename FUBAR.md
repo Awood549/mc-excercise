@@ -4,6 +4,11 @@ This is what Carol & Bob did on Bob's computer when working on the first feature
 
 We're doing more shit. Yay for more shit.
 
+
+No body likes you
+
+How do blind people know when they are done whiping? 
+
 I don't know what I'm doing.
 
 Help.
@@ -17,3 +22,5 @@ Help me Tom Cruise.
 Help me baby Jesus. 
 
 CAROL MADE A CHANGE
+
+well... fuck.
